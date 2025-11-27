@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Rohan Kayastha Kaluwar
-- 🌱 I’m currently pursuing my B.tech degree from Jorhat engineering college 
+- 🌱 I did pursued my B.tech degree from Jorhat engineering college 
 - 📫 you can to reach me through my social media handles 
 
 <!---
